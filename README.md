@@ -16,3 +16,5 @@
 ![](https://github-profile-trophy.vercel.app/?username=abir1807&theme=radical&no-frame=false&no-bg=true&margin-w=4)
 
 ---
+[![](https://visitcount.itsvg.in/api?id=abir1807&icon=1&color=0)](https://visitcount.itsvg.in)
+
